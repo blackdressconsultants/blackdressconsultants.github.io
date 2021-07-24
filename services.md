@@ -7,11 +7,11 @@ We’re here to help guide you through decisions, tasks, and endless to-dos so t
 **Disclaimer:** We are not attorneys, financial advisors, or CPAs. However, we do partner with these resources, when needed, to ensure that every task that we complete for you is under their advice. If you do not have an estate attorney or financial advisor and your estate requires or would benefit from these resources, we are happy to connect you with our network of seasoned professionals.
 
 | After Loss Support |
-| :----------------: |
+| :----------------- |
 | * Personalized options and recommendations
- * Notify friends, schools, and associations
- * Cancel and pay utilities 
- * Close credit cards, memberships , and social media accounts
+| * Notify friends, schools, and associations
+| * Cancel and pay utilities 
+| * Close credit cards, memberships , and social media accounts
 
 | Estate Document Organization |
 | :--------------------------: |
