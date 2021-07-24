@@ -21,27 +21,27 @@ We’re here to help guide you through decisions, tasks, and endless to-dos so t
 
 | Executor Services |
 | :---------------- |
-| Navigate probate requirements and processes | 
-| Help with distributing assets to inheritors, paying debts, ongoing expenses and taxes, etc. | 
+| Navigate probate requirements and processes |
+| Help with distributing assets to inheritors, paying debts, ongoing expenses and taxes, etc. |
 | Assist with managing the estate |
 
 ---
 
 | In Lieu of Flowers Package |
 | :------------------------- |
-| Do you have a friend or family member who has lost a loved one and you want to help during their time of need? | 
-| This introductory package includes 5 hours of our 1:1 time to help a grieving family with any immediate or down-the-road needs | 
+| Do you have a friend or family member who has lost a loved one and you want to help during their time of need? |
+| This introductory package includes 5 hours of our 1:1 time to help a grieving family with any immediate or down-the-road needs |
 | This package can be split with others who want to pitch in and help |
 
 | Digital Asset Organization |
 | :------------------------- |
 | Take inventory of digital assets and either remove or transfer them to a digital heir |
-| Secure estate planning documents, digital photos, and account information on a private server | 
+| Secure estate planning documents, digital photos, and account information on a private server |
 | Preserve your digital legacy and protect against after-death identity theft |
 
 | Senior Living Transition |
 | :----------------------- |
-| Interview and hire downsizing and estate sale companies, realtors, decluttering services, etc. | 
+| Interview and hire downsizing and estate sale companies, realtors, decluttering services, etc. |
 | Support selecting senior living facility |
 | Manage moving logistics and transportation to new residence |
 
