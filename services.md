@@ -8,10 +8,10 @@ We’re here to help guide you through decisions, tasks, and endless to-dos so t
 
 | After Loss Support |
 | :----------------: |
-| * Personalized options and recommendations |
-| * Notify friends, schools, and associations |
-| * Cancel and pay utilities |
-| * Close credit cards, memberships , and social media accounts | 
+| * Personalized options and recommendations
+ * Notify friends, schools, and associations
+ * Cancel and pay utilities 
+ * Close credit cards, memberships , and social media accounts
 
 | Estate Document Organization |
 | :--------------------------: |
